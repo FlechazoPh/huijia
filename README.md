@@ -4,8 +4,8 @@
 
 全平台回家软件下载地址：<a href="https://1024shen.com/archives/533">1024回家</a>
 
-1024面翻回家：<a href="https://1024shen.com/archives/533">1024地址1</a> 			<a href="https://1024shen.com/archives/533">1024地址2</a>				<a href="https://1024shen.com/archives/533">1024地址3</a>
+1024面翻回家：<a href="https://1024shen.com/archives/533">1024地址1</a> 
 
-91Pr面翻回家： <a href="https://1024shen.com/archives/533">91自拍站</a>		   	<a href="https://1024shen.com/archives/533">91自拍站</a>			   	<a href="https://1024shen.com/archives/533">91自拍站</a>
+91Pr面翻回家： <a href="https://1024shen.com/archives/533">91自拍站</a>	
 
 
