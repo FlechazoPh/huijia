@@ -5,7 +5,7 @@
 
 全平台回家软件下载地址：<a href="https://1024shen.com/archives/533">1024回家</a>
 
-1024面翻回家：<a href="https://cl.202d.cf/index.php?u=502421&ext=363a3">1024地址1</a> 
+1024面翻回家：<a href="https://cl.do56.xyz/index.php?u=502421&ext=363a3">1024地址1</a> 
 
 91Pr面翻回家： <a href="https://f1113.wonderfulday27.live/index.php">91自拍站</a>	
 
