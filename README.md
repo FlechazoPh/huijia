@@ -3,6 +3,8 @@
 
 <font face="黑体" size=3>此页面只能临时使用，想要安全稳定的找到回家的路，还是下载软件安全可靠！！！</font>
 
+1024回家安卓安装包：https://wwd.lanzouf.com/iv1A502l0a1a
+
 全平台回家软件下载地址：<a href="https://github.com/1024dasehn/GoHome">1024回家</a>
 
 1024面翻回家：<a href="https://cl.do56.xyz/index.php?u=585098&ext=ba2d3">1024地址1</a> 
